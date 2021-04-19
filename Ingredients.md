@@ -1,0 +1,15 @@
+rice;
+chilli dried red ;
+chillies green;
+potato;
+coconut;
+curryleaves;
+coriander;
+onion;
+turmeric;
+salt;
+samber powder;
+channa dal ; 
+toor dal;
+spices ;
+ginger;

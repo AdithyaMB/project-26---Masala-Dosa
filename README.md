@@ -1,1 +1,1 @@
-# project-26---Masala-Dosa
+Masala Dosa is an amazing south Indian Dish . The locals of South India consume this wonderful dish atleast once a week . Full of flavours , this dish can make anyone fall in love with it . The dosa having the Masala is accompanied with some potato palya(in kannada) / gravy along with some nice green coconut chutney and sambar . Truly amazing yummmm!!
